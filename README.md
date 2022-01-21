@@ -1,3 +1,4 @@
+Jeremy Fabricio Jaramillo Pena - Pablo Figueroa
 # Trabajo en Clases - Semana6 - Segundo Bimestre
 
 
